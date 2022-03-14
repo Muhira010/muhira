@@ -1,2 +1,0 @@
-# muhira
-challngs chapter2
